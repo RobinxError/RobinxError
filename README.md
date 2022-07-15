@@ -1,4 +1,4 @@
-[![MasterHead](https://thumbs.gfycat.com/BlandFancyElkhound-size_restricted.gif)]
+![MasterHead](https://thumbs.gfycat.com/BlandFancyElkhound-size_restricted.gif)
 
 <h1 align="center">Hi 👋, I'm Robin Hossain</h1>
 
